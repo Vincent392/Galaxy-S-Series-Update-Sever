@@ -1,2 +1,2 @@
-# Galaxy S sires Download Folder
+# Galaxy S Series Download Folder
 ## NOW PLEASE DONT SHARE TO PUBLIC UNLESS I SAY SO ESPECALY BETAS
